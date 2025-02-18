@@ -18,5 +18,5 @@ The future of aviation safety depends on collaboration and innovation. At Derad 
 Together, we can unlock new opportunities for technology-driven solutions and create a safer, more connected world. By empowering individuals to contribute to ADS-B adoption, we're putting the power of safer skies in the hands of people around the globe.
 
 Be part of this revolutionary effort. Contribute to Derad Network today and help shape the future of aviation safety!"
-For more info visit our webiste on https://www.derad.net
+For more info visit our website on https://www.derad.net
 
