@@ -11,3 +11,12 @@ With Derad Network, the possibilities are vast:
 - Increased safety and reduced risks for aviation stakeholders
 
 By harnessing the power of decentralized ADS-B infrastructure, we're unlocking a future of limitless possibilities."
+Join the Movement to Revolutionize Aviation Safety
+
+The future of aviation safety depends on collaboration and innovation. At Derad Network, we're inviting individuals worldwide to join our mission to expand ADS-B coverage and bridge the gaps in global aviation safety.
+
+Together, we can unlock new opportunities for technology-driven solutions and create a safer, more connected world. By empowering individuals to contribute to ADS-B adoption, we're putting the power of safer skies in the hands of people around the globe.
+
+Be part of this revolutionary effort. Contribute to Derad Network today and help shape the future of aviation safety!"
+For more info visit our webiste on https://www.derad.net
+
